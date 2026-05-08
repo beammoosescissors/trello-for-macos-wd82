@@ -1,4 +1,4 @@
-
+Enhance Trello for macOS with Trello for macOS instant Utility: widgets & calendar integration, the #1 utility. Includes widgets and calendar integration for a smoother experience.
 
 
 
